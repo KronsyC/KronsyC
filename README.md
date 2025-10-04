@@ -1,3 +1,3 @@
-## Greetings, I'm Samir
+## I'm Samir
 
-me like butter 🤤
+I enjoy software development and musically identify as a sad lesbian
